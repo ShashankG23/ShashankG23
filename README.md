@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shashankgawade23@gmail.com**
 
-- 📄 Know about my experiences [https://panoramic-teller-1a1.notion.site/Shashank-Gawade-Game-Designer-and-GameDev-82d66ba8ca3f49b8a34af97a70aa6397?pvs=4](https://panoramic-teller-1a1.notion.site/Shashank-Gawade-Game-Designer-and-GameDev-82d66ba8ca3f49b8a34af97a70aa6397?pvs=4)
+- 📄 Know about my experiences [http://lnkiy.in/Shashank-portfolio](http://lnkiy.in/Shashank-portfolio)
 
 - ⚡ Fun fact **I Can Devlop.**
 
